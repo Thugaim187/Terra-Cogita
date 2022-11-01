@@ -1,2 +1,2 @@
 # Terra-Cogita
-I misr evolve or die
+I misread evolve or die
